@@ -3,9 +3,9 @@
 - 💞️ I’m looking to collaborate on real businesses and projects.
 - 📫 How to reach me
 
-- telegram. @absis
-- Instagram. @abel_besty2
-- 
+- telegram. @abel_besty
+- Instagram. @abel_besty
+- TikTok. @abel_besty1234
 
 <!---
 abelshishay/abelshishay is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
