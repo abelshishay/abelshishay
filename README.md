@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Abel Shishay or Abel Besty.
+- 👋 Hi, I’m Abel Sisay or Abel Besty.
 - 👀 I’m interested in web developing and programming.
 - 💞️ I’m looking to collaborate on real businesses and projects.
 - 📫 How to reach me
